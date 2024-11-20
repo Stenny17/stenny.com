@@ -14,6 +14,14 @@
 
 39 / 3 = 13
 
+Praise the Lord, for he is good, his mercy endureth forever!!
 
+Glory to God in the Highest, Good will men..
+
+Let everything that has breath, Praise the LORDPraise the Lord, for he is good, his mercy endureth forever!!
+
+Glory to God in the Highest, Good will men..
+
+Let everything that has breath, Praise the LORD
 
 
