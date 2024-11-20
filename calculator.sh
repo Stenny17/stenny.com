@@ -22,6 +22,16 @@ Let everything that has breath, Praise the LORDPraise the Lord, for he is good, 
 
 Glory to God in the Highest, Good will men..
 
-Let everything that has breath, Praise the LORD
+Let everything that has breath, Praise the LORD 
+
+John 3:16-17 King James Version (KJV)
+For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.
+
+
+
+Joshua 1:9 New International Version (NIV)
+Have I not commanded you? Be strong and courageous. Do not be afraid; do not be discouraged, for the Lord your God will be with you wherever you go.
+
+
 
 
